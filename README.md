@@ -7,7 +7,7 @@
 ██╔══╝  ██╔══██╗                                               good for me or u (ig)
 ╚═╝     ╚═╝  ╚═╝
 ```
-<a href="https://youtu.be/Ek40XtVsO7g?si=YXz_YSI0Az335bUt&t=1">Let's do things differently this time like so differently .</a> His name is **Fares** and he is very lazy to finish the bigass talk about his life in some .md file so he'll fix in post 
+<a href="https://youtu.be/Ek40XtVsO7g?si=YXz_YSI0Az335bUt&t=1">Let's do things differently this time like so differently.</a> His name is **Fares** and he is very lazy to finish the bigass talk about his life in some .md file so he'll fix it in post (he will not)
 
 ---
 ### <img src="Media/Emoji/Hole.png" alt="keepintouch" width="25" height="25" /> Who's The FR? :(not ready yet)
